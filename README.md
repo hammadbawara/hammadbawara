@@ -12,6 +12,4 @@
 
 📫 How to reach me: You can email me at **hammadbawara@gmail.com**
 
-😄 Pronouns: He/Him.
-
 ⚡ **Fun fact:** I love exploring new technologies and experimenting with cutting-edge software development techniques.
